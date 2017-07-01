@@ -1,3 +1,4 @@
-# opyty proshli uspeshno 
+# opyty 
 vse tolko nachinaetcia
 vseh love
+i am budu uchitsia
